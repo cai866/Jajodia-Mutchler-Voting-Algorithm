@@ -1,0 +1,6 @@
+# Jajodia-Mutchler-Voting-Algorithm
+
+
+
+
+
